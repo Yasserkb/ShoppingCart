@@ -1,0 +1,6 @@
+# DotNetExam![1](https://user-images.githubusercontent.com/59380367/219967747-d2313996-7688-445d-a51f-c773705f2709.png)
+![2](https://user-images.githubusercontent.com/59380367/219967748-fa4eb907-0858-4cb5-b8e2-f9b4812e2532.png)
+![3](https://user-images.githubusercontent.com/59380367/219967750-0fa016b2-67ba-4edf-9396-aa1ead615eb3.png)
+![4](https://user-images.githubusercontent.com/59380367/219967754-681f4901-ccb8-4bc5-9757-39113a9f17e4.png)
+![5](https://user-images.githubusercontent.com/59380367/219967755-ac5c44fa-9248-45c9-9f81-e1fb5b9c0b3c.png)
+![6](https://user-images.githubusercontent.com/59380367/219967756-508edfeb-9df6-462f-ab23-df07e785cf38.png)
